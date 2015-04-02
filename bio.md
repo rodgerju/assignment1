@@ -1,2 +1,2 @@
-# assignment1
-Assignment1
+Justin Rodgers
+Hobbies and interests- Video games, skiing, comedy clubs 
